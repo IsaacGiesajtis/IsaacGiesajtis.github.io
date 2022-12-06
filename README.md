@@ -1,1 +1,0 @@
-# IsaacGiesajtis.github.io
